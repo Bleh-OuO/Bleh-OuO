@@ -16,7 +16,7 @@ Fandoms - 🖋️🎀;🔦🪦;🦊🩷;💭🏝️;⭐🦖;🍷🗝️;👑🍪
 
 I'm kinda 𝓯𝓻𝓮𝓪𝓴𝔂 👅 ( ＾◡＾)っ✂╰⋃╯
 
- Layze, Femtanyl, Sodikken, Rebzyxx, FunkyFrogBait, MSI, S3RL, Machine Girl, Sir Mix-A-Lot, Ayesha Erotica, 5mewmet and etc etc fan {¬ºཀ°}¬
+ Layze, Femtanyl, Sodikken, Rebzyxx, FunkyFrogBait, MSI, S3RL, Machine Girl, Sir Mix-A-Lot, Ayesha Erotica, 5mewmet, STOMACH BOOK and etc etc fan {¬ºཀ°}¬
  
  I HATE SCHOOL!!! Like my life is just a cycle.. sighs!!˙ . ꒷ 🍰 . 𖦹˙—
 
