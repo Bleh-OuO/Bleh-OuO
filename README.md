@@ -1,4 +1,6 @@
-## Hi there 👋
+## Yo!!!
+this is a account JUST for ponytown!!!
+🦑🐇;🩷👛;🔳🔲;🍋☎️;🖋️🎀;🔦🪦;🦊🩷;💭🏝️;⭐🦖;🍷🗝️;👑🍪;🌳🪚;🐱🌈;🌿🌂;🔪🐾
 
 <!--
 **Bleh-OuO/Bleh-OuO** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
