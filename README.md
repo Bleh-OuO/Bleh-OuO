@@ -1,4 +1,4 @@
-## Yo!!!ִ ࣪𖤐
+## Yo!!!ִ ࣪𖤐 PLS INT, I NEED FRIENDS!! sigh. 
 
 "ᴵ ᵍᵒᵗ ⁱⁿ ᵒᵛᵉʳ ᵐʸ ʰᵉᵃᵈ
 
@@ -12,7 +12,9 @@ This is a account JUST for ponytown!!!ᯓ★
 
 Fandoms - 🖋️🎀;🔦🪦;🦊🩷;💭🏝️;⭐🦖;🍷🗝️;👑🍪;🌳🪚;🐱🌈;💚❤️💛;🌿🌂;! ₍^. .^₎⟆
 
-୨ৎᴘᴀɴꜱᴇxᴜᴀʟ, ꜰɪᴄᴛᴏʀᴏᴍᴀᴛɪᴄ ᴀɴᴅ ꜰɪᴇʀɪꜱᴇxᴜᴀʟ/ᴄᴇᴘᴛᴜꜱᴇxᴜᴀʟ!!!
+୨ৎᴘᴀɴꜱᴇxᴜᴀʟ, ꜰɪᴄᴛᴏʀᴏᴍᴀᴛɪᴄ ᴀɴᴅ ꜰɪᴇʀɪꜱᴇxᴜᴀʟ/ᴄᴇᴘᴛᴜꜱᴇxᴜᴀʟ
+
+I'm kinda 𝓯𝓻𝓮𝓪𝓴𝔂 👅 ( ＾◡＾)っ✂╰⋃╯
 
  Layze, Femtanyl, Sodikken, Rebzyxx, FunkyFrogBait, MSI, S3RL, Machine Girl, Sir Mix-A-Lot, Ayesha Erotica, 5mewmet and etc etc fan {¬ºཀ°}¬
  
