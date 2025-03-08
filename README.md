@@ -8,14 +8,14 @@
 
 ᴹʸ ˢᵖⁱᵗᵉ, ⁱˢ ᵃˡˡ ᵗʰᵃᵗ ᴵ ʰᵃᵛᵉ ˡᵉᶠᵗ!"- Mecore.
 
-This is a account JUST for ponytown!!!ᯓ★
+This is a account JUST for ponytown!!!ᯓ★!
 
-[D1NNER!](https://github.com/user-attachments/assets/546fb9a6-e9d9-491d-98b9-96be32c76c52)
-
+![bleeh](IMG-20250308-WA0007)
 
 Fandoms - 🖋️🎀;🔦🪦;🦊🩷;💭🏝️;⭐🦖;🍷🗝️;👑🍪;🌳🪚;🐱🌈;💚❤️💛;🌿🌂;! ₍^. .^₎⟆
 
-୨ৎᴘᴀɴꜱᴇxᴜᴀʟ, ꜰɪᴄᴛᴏʀᴏᴍᴀᴛɪᴄ ᴀɴᴅ ꜰɪᴇʀɪꜱᴇxᴜᴀʟ/ᴄᴇᴘᴛᴜꜱᴇxᴜᴀʟ!!
+୨ৎᴘᴀɴꜱᴇxᴜᴀʟ, ꜰɪᴄᴛᴏʀᴏᴍᴀᴛɪᴄ ᴀɴᴅ ꜰɪᴇʀɪꜱᴇxᴜᴀʟ/ᴄᴇᴘᴛᴜꜱᴇxᴜᴀʟ!!!
+
 
  Layze, Femtanyl, Sodikken, Rebzyxx, FunkyFrogBait, MSI, S3RL, Machine Girl, Sir Mix-A-Lot, Ayesha Erotica, 5mewmet and etc etc fan {¬ºཀ°}¬
  
