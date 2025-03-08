@@ -1,6 +1,6 @@
 ## Yo!!!ִ ࣪𖤐
 this is a account JUST for ponytown!!!ᯓ★
-🦑🐇;🩷👛;🔳🔲;🍋☎️;🖋️🎀;🔦🪦;🦊🩷;💭🏝️;⭐🦖;🍷🗝️;👑🍪;🌳🪚;🐱🌈;🌿🌂;🔪🐾! ₍^. .^₎⟆
+🦑🐇;🩷👛;🔳🔲;🍋☎️;🖋️🎀;🔦🪦;🦊🩷;💭🏝️;⭐🦖;🍷🗝️;👑🍪;🌳🪚;🐱🌈;🌿🌂;🔪🐾:SKULL:! ₍^. .^₎⟆
 
 I HATE SCHOOL!!! Like my life is just a cycle.. sighs!!˙ . ꒷ 🍰 . 𖦹˙—
 
