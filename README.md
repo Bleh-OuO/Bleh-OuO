@@ -10,7 +10,7 @@ Fandoms - 🖋️🎀;🔦🪦;🦊🩷;💭🏝️;⭐🦖;🍷🗝️;👑🍪
 
 Me being jealous of every single good artist bc I suck at drawing. Gyulp˗ˏˋ★ ˎˊ˗
 
-Shrimpo, Infected, Courtney, Nooby n Animatic kinner!!!
+Tissues, Shrimpo, Infected, Courtney, Nooby n Animatic kinner!!!
 
 INC0MU x 1x1x1x1 doomed yaoi real!!! I heart this ship,,!!! Mwah Mwah Mwah
 
