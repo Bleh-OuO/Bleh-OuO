@@ -3,6 +3,7 @@ this is a account JUST for ponytown!!!ᯓ★
 🦑🐇;🩷👛;🔳🔲;🍋☎️;🖋️🎀;🔦🪦;🦊🩷;💭🏝️;⭐🦖;🍷🗝️;👑🍪;🌳🪚;🐱🌈;🌿🌂;🔪🐾! ₍^. .^₎⟆
 
 I HATE SCHOOL!!! Like my life is just a cycle.. sighs!!˙ . ꒷ 🍰 . 𖦹˙—
+Me being jealous of every single good artist bc I suck at drawing. Sigh!˗ˏˋ ★ ˎˊ˗
 
 
 <!--
