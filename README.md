@@ -10,15 +10,15 @@
 ᴹʸ ˢᵖⁱᵗᵉ, ⁱˢ ᵃˡˡ ᵗʰᵃᵗ ᴵ ʰᵃᵛᵉ ˡᵉᶠᵗ!"- Mecore.
 
 This is a account JUST for ponytown!!!ᯓ★
-![danger to society](https://github.com/user-attachments/assets/227ec778-446d-48f2-9890-d27b8c3bcd2e)
 
 Fandoms - 🖋️🎀;🔦🪦;🦊🩷;💭🏝️;⭐🦖;🍷🗝️;👑🍪;🌳🪚;🐱🌈;💚❤️💛;🌿🌂;! ₍^. .^₎⟆
 
 ୨ৎᴘᴀɴꜱᴇxᴜᴀʟ, ꜰɪᴄᴛᴏʀᴏᴍᴀᴛɪᴄ ᴀɴᴅ ꜰɪᴇʀɪꜱᴇxᴜᴀʟ/ᴄᴇᴘᴛᴜꜱᴇxᴜᴀʟ
 
 I'm kinda 𝓯𝓻𝓮𝓪𝓴𝔂 👅 ( ＾◡＾)っ✂╰⋃╯
+![danger to society](https://github.com/user-attachments/assets/227ec778-446d-48f2-9890-d27b8c3bcd2e)
 
- Layze, Femtanyl, Sodikken, Rebzyxx, FunkyFrogBait, MSI, S3RL, Machine Girl, Sir Mix-A-Lot, Ayesha Erotica, 5mewmet, STOMACH BOOK and etc etc fan {¬ºཀ°}¬
+Layze, Femtanyl, Sodikken, Rebzyxx, FunkyFrogBait, MSI, S3RL, Machine Girl, Sir Mix-A-Lot, Ayesha Erotica, 5mewmet, STOMACH BOOK and etc etc fan {¬ºཀ°}¬
  
  I HATE SCHOOL!!! Like my life is just a cycle.. sighs!!˙ . ꒷ 🍰 . 𖦹˙—
 
