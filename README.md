@@ -8,8 +8,8 @@
 
 ᴹʸ ˢᵖⁱᵗᵉ, ⁱˢ ᵃˡˡ ᵗʰᵃᵗ ᴵ ʰᵃᵛᵉ ˡᵉᶠᵗ!"- Mecore.
 
-This is a account JUST for ponytown!!!ᯓ★!
-![me](Ambientedetrabalho/IMG-2025308-WA0007.png)
+This is a account JUST for ponytown!!!ᯓ★
+
 Fandoms - 🖋️🎀;🔦🪦;🦊🩷;💭🏝️;⭐🦖;🍷🗝️;👑🍪;🌳🪚;🐱🌈;💚❤️💛;🌿🌂;! ₍^. .^₎⟆
 
 ୨ৎᴘᴀɴꜱᴇxᴜᴀʟ, ꜰɪᴄᴛᴏʀᴏᴍᴀᴛɪᴄ ᴀɴᴅ ꜰɪᴇʀɪꜱᴇxᴜᴀʟ/ᴄᴇᴘᴛᴜꜱᴇxᴜᴀʟ!!!
