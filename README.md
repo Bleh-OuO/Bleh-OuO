@@ -1,4 +1,4 @@
-## Yo!!!ִ ࣪𖤐 PLS INT, I NEED FRIENDS!! sigh. 
+## Yo!!!ִ ࣪𖤐 PLS INT, I NEED FRIENDS!! sigh.
 
 "ᴵ ᵍᵒᵗ ⁱⁿ ᵒᵛᵉʳ ᵐʸ ʰᵉᵃᵈ
 
@@ -26,7 +26,7 @@ Tissues, Shrimpo, Infected, Courtney, Nooby n Animatic kinner!!!
 
 INC0MU x 1x1x1x1 doomed yaoi real!!! I heart this ship,,!!! Mwah Mwah Mwah
 
-Emerson kissr!!૮꒰ ˶• ༝ •˶꒱ა ♡ I heart him >o<
+Buh bye ૮₍´｡ᵔ ꈊ ᵔ｡`₎ა!!
 
 <!--
 **Bleh-OuO/Bleh-OuO** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
