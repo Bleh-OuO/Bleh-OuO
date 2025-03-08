@@ -1,4 +1,5 @@
 ## Yo!!!ִ ࣪𖤐 PLS INT, I NEED FRIENDS!! sigh.
+![len2](https://github.com/user-attachments/assets/63ce6ce7-544b-4e06-8dc7-33427e29ba5a)
 
 "ᴵ ᵍᵒᵗ ⁱⁿ ᵒᵛᵉʳ ᵐʸ ʰᵉᵃᵈ
 
