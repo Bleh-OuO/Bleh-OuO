@@ -17,7 +17,6 @@ This is a account JUST for ponytown!!!ᯓ★
 ![trucks](https://github.com/user-attachments/assets/ff99474c-396c-44b7-afb0-f4b5878c1a5e)
 
 Uhh I'm kinda super akward at first but that's bc I can't talk to ppl!!
-![0220-pills](https://github.com/user-attachments/assets/9f12f6b5-8b09-45ae-a82e-5f8a654745e9)
 
 Fandoms - 🖋️🎀;🔦🪦;🦊🩷;💭🏝️;⭐🦖;🍷🗝️;👑🍪;🌳🪚;🐱🌈;💚❤️💛;🌿🌂;! ₍^. .^₎⟆
 ![kangel_and_ame_chan_stamp_by_scenekel_dfybcxm-fullview](https://github.com/user-attachments/assets/a341656f-b778-42fb-b11f-5088add14e72)
@@ -42,6 +41,9 @@ Me being jealousof every single good artist bc I suck at drawing. Gyulp˗ˏˋ★
 
 Flippy, Tissues, Shrimpo, Infected, Courtney, Nooby n Animatic kinner!!! 
 ![stamp_by_daemonb4_d4pnvmp-fullview](https://github.com/user-attachments/assets/41c43536-486f-4b4a-b5bb-19663f3e5985)
+
+
+![0220-pills](https://github.com/user-attachments/assets/9f12f6b5-8b09-45ae-a82e-5f8a654745e9)
 
 
 INC0MU x 1x1x1x1 doomed yaoi real!!! I heart this ship,,!!! Mwah Mwah Mwah
