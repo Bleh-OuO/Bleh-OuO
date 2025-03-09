@@ -47,7 +47,7 @@ INC0MU x 1x1x1x1 doomed yaoi real!!! I heart this ship,,!!! Mwah Mwah Mwah
 Buh bye ૮₍´｡ᵔ ꈊ ᵔ｡`₎ა!!![tumblr_6f633c4914e724a592908347c86a1fce_e3c5ab77_100](https://github.com/user-attachments/assets/6a17a39a-496c-43c6-b0ad-cddf67544760)
 
 
-silly sites I used for buttonz and stickers: https://rentry.co/PUSHURT3MPER https://rentry.co/kamikazegirIs
+silly sites I used for buttonz and stickers: https://rentry.co/PUSHURT3MPER https://rentry.co/kamikazegirIs https://blinkies.cafe/
 <!--
 **Bleh-OuO/Bleh-OuO** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
