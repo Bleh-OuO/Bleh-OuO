@@ -38,7 +38,7 @@ INC0MU x 1x1x1x1 doomed yaoi real!!! I heart this ship,,!!! Mwah Mwah Mwah
 
 Buh bye ૮₍´｡ᵔ ꈊ ᵔ｡`₎ა!!
 
-silly site I used for buttonz and stickers: https://rentry.co/PUSHURT3MPER
+silly sites I used for buttonz and stickers: https://rentry.co/PUSHURT3MPER https://rentry.co/kamikazegirIs
 <!--
 **Bleh-OuO/Bleh-OuO** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
