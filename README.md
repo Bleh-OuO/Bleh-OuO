@@ -1,7 +1,7 @@
 ## Yo!!!ִ ࣪𖤐 PLS INT, I NEED FRIENDS!! sigh.
 ![20-DDDEFD-3-B4-C-48-F3-B755-2-A5-DE23-E4734](https://github.com/user-attachments/assets/b1097022-919d-48f4-96e8-1a24b8588e4f)
 
-!<iframe style="border-radius:12px" src="https://open.spotify.com/embed/track/0HZVEAGKTRnLri74Dozk7N?utm_source=generator" width="100%" height="352" frameBorder="0" allowfullscreen="" allow="autoplay; clipboard-write; encrypted-media; fullscreen; picture-in-picture" loading="lazy"></iframe>
+<iframe style="border-radius:12px" src="https://open.spotify.com/embed/track/0HZVEAGKTRnLri74Dozk7N?utm_source=generator" width="100%" height="352" frameBorder="0" allowfullscreen="" allow="autoplay; clipboard-write; encrypted-media; fullscreen; picture-in-picture" loading="lazy"></iframe>
 
 ![len2](https://github.com/user-attachments/assets/63ce6ce7-544b-4e06-8dc7-33427e29ba5a)
 
