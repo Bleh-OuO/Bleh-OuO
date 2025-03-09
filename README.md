@@ -28,7 +28,7 @@ Fandoms - 🖋️🎀;🔦🪦;🦊🩷;💭🏝️;⭐🦖;🍷🗝️;👑🍪
 I'm kinda 𝓯𝓻𝓮𝓪𝓴𝔂 👅 ( ＾◡＾)っ✂╰⋃╯
 ![yes__i_do_crack_cocaine_by_faketop_dd481mx-fullview](https://github.com/user-attachments/assets/d21f3d82-917e-4139-b85c-3fb7c18fc63e)
 
-[0206-nyancat](https://github.com/user-attachments/assets/f981a81c-70a6-49a2-87c1-4a3dcdd70863)
+![0206-nyancat](https://github.com/user-attachments/assets/f981a81c-70a6-49a2-87c1-4a3dcdd70863)
 
 
 Layze, Femtanyl, Sodikken, Rebzyxx, FunkyFrogBait, MSI, S3RL, Machine Girl, Sir Mix-A-Lot, Ayesha Erotica, 5mewmet, STOMACH BOOK and etc etc fan {¬ºཀ°}¬
