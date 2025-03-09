@@ -1,4 +1,6 @@
 ## Yo!!!ִ ࣪𖤐 PLS INT, I NEED FRIENDS!! sigh.
+![20-DDDEFD-3-B4-C-48-F3-B755-2-A5-DE23-E4734](https://github.com/user-attachments/assets/b1097022-919d-48f4-96e8-1a24b8588e4f)
+
 ![len2](https://github.com/user-attachments/assets/63ce6ce7-544b-4e06-8dc7-33427e29ba5a)
 
 "ᴵ ᵍᵒᵗ ⁱⁿ ᵒᵛᵉʳ ᵐʸ ʰᵉᵃᵈ
@@ -51,8 +53,9 @@ INC0MU x 1x1x1x1 doomed yaoi real!!! I heart this ship,,!!! Mwah Mwah Mwah
 
 Buh bye ૮₍´｡ᵔ ꈊ ᵔ｡`₎ა!!![tumblr_6f633c4914e724a592908347c86a1fce_e3c5ab77_100](https://github.com/user-attachments/assets/6a17a39a-496c-43c6-b0ad-cddf67544760)
 
-
 silly sites I used for buttonz and stickers: https://rentry.co/PUSHURT3MPER https://rentry.co/kamikazegirIs https://blinkies.cafe/
+
+![7qz7tj](https://github.com/user-attachments/assets/81f1173e-9a93-4604-bc5c-1a0e7a900d9b)
 <!--
 **Bleh-OuO/Bleh-OuO** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
