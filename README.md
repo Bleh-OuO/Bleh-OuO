@@ -29,7 +29,6 @@ I'm kinda 𝓯𝓻𝓮𝓪𝓴𝔂 👅 ( ＾◡＾)っ✂╰⋃╯
 
 ![0206-nyancat](https://github.com/user-attachments/assets/f981a81c-70a6-49a2-87c1-4a3dcdd70863)
 
-
 Layze, Femtanyl, Sodikken, Rebzyxx, FunkyFrogBait, MSI, S3RL, Machine Girl, Sir Mix-A-Lot, Ayesha Erotica, 5mewmet, STOMACH BOOK and etc etc fan {¬ºཀ°}¬
  ![tetoteteto](https://github.com/user-attachments/assets/24acbcff-4384-4ba0-a8f4-31d143ac581b)
 
