@@ -11,7 +11,8 @@ Call me Aurora !! ^_^
 
 ᴹʸ ˡⁱᶠᵉ, ᶠᵒᵈᵈᵉʳ ˡⁱᵏᵉ ᵗʰᵉ ʳᵉˢᵗ
 
-ᴹʸ ˢᵖⁱᵗᵉ, ⁱˢ ᵃˡˡ ᵗʰᵃᵗ ᴵ ʰᵃᵛᵉ ˡᵉᶠᵗ!"- Mecore.
+ᴹʸ ˢᵖⁱᵗᵉ, ⁱˢ ᵃˡˡ ᵗʰᵃᵗ ᴵ ʰᵃᵛᵉ ˡᵉᶠᵗ!"- Mecore. ![sCL5A67](https://github.com/user-attachments/assets/145826bc-cc48-47e0-9e36-faf280dfda1d)
+
 
 
 ![0190-hittingfloor](https://github.com/user-attachments/assets/802f7560-53b9-4fcb-a32b-47978d92e7ea)
@@ -50,10 +51,11 @@ I HATE SCHOOL!!! Like my life is just a cycle.. sighs!!˙ . ꒷ 🍰 . 𖦹˙—
 
 Me being jealousof every single good artist bc I suck at drawing. Gyulp˗ˏˋ★ ˎˊ˗ 
 ![tumblr_inline_p0x8glfCRf1uzqajc_500](https://github.com/user-attachments/assets/654e1cf8-1646-49a2-bd7c-0d7f7e2632d6)
+![fa6HuMb](https://github.com/user-attachments/assets/149e4f7d-19ba-4a07-8208-565c3cf21208)
 
-Flippy, Tissues, Shrimpo, Infected, Courtney, Nooby n Animatic kinner!!! 
+Flippy, Tissues, Shrimpo, Infected, Courtney, Nooby n Animatic kinner!!!![JaHoLpm](https://github.com/user-attachments/assets/2dd0ad01-774a-4e8d-955a-c66f109b0249)
+
 ![stamp_by_daemonb4_d4pnvmp-fullview](https://github.com/user-attachments/assets/41c43536-486f-4b4a-b5bb-19663f3e5985)
-
 
 ![0220-pills](https://github.com/user-attachments/assets/9f12f6b5-8b09-45ae-a82e-5f8a654745e9)
 
