@@ -13,6 +13,7 @@ This is a account JUST for ponytown!!!ᯓ★
 ![trucks](https://github.com/user-attachments/assets/ff99474c-396c-44b7-afb0-f4b5878c1a5e)
 
 Fandoms - 🖋️🎀;🔦🪦;🦊🩷;💭🏝️;⭐🦖;🍷🗝️;👑🍪;🌳🪚;🐱🌈;💚❤️💛;🌿🌂;! ₍^. .^₎⟆
+![mohbkf](https://github.com/user-attachments/assets/2fc70375-c78f-4a20-9146-456ea684ce14)
 
 ୨ৎᴘᴀɴꜱᴇxᴜᴀʟ, ꜰɪᴄᴛᴏʀᴏᴍᴀᴛɪᴄ ᴀɴᴅ ꜰɪᴇʀɪꜱᴇxᴜᴀʟ/ᴄᴇᴘᴛᴜꜱᴇxᴜᴀʟ
 ![tumblr_inline_pgraffnuNe1v11djx_1280](https://github.com/user-attachments/assets/430f1807-4db3-4399-acfa-9a793898a4f9)
@@ -26,15 +27,18 @@ Layze, Femtanyl, Sodikken, Rebzyxx, FunkyFrogBait, MSI, S3RL, Machine Girl, Sir 
 I HATE SCHOOL!!! Like my life is just a cycle.. sighs!!˙ . ꒷ 🍰 . 𖦹˙—
 ![tumblr_inline_pbk6zbvnsb1vjkfs0_540](https://github.com/user-attachments/assets/8d4a74ac-cb7f-42da-94ae-ac93dec5452f)
 
-Me being jealous of every single good artist bc I suck at drawing. Gyulp˗ˏˋ★ ˎˊ˗ ![tumblr_inline![tumblr_inline_pbk6zbvnsb1vjkfs0_540](https://github.com/user-attachments/assets/b3076bc0-30c5-467d-87bd-f761389edf5b)
+Me being jealous of every single good artist bc I suck at drawing. Gyulp˗ˏˋ★ ˎˊ˗ 
+![tumblr_inline_p0x8glfCRf1uzqajc_500](https://github.com/user-attachments/assets/654e1cf8-1646-49a2-bd7c-0d7f7e2632d6)
 
-Tissues, Shrimpo, Infected, Courtney, Nooby n Animatic kinner!!! ![lovemycomputer](https://github.com/user-attachments/assets/735f8125-754c-48cf-8287-478839cdde9a)
+Tissues, Shrimpo, Infected, Courtney, Nooby n Animatic kinner!!! 
+![lovemycomputer](https://github.com/user-attachments/assets/735f8125-754c-48cf-8287-478839cdde9a)
 
 INC0MU x 1x1x1x1 doomed yaoi real!!! I heart this ship,,!!! Mwah Mwah Mwah
 ![IMG_9386](https://github.com/user-attachments/assets/3d307d15-4d91-4cc5-88ae-5b3c9ab76636)
 
 Buh bye ૮₍´｡ᵔ ꈊ ᵔ｡`₎ა!!
 
+silly site I used for buttonz and stickers: https://rentry.co/PUSHURT3MPER
 <!--
 **Bleh-OuO/Bleh-OuO** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
