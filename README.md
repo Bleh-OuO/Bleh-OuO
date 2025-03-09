@@ -18,14 +18,20 @@
 This is a account JUST for ponytown!!!ᯓ★
 ![trucks](https://github.com/user-attachments/assets/ff99474c-396c-44b7-afb0-f4b5878c1a5e)
 
+![0266-lovefool](https://github.com/user-attachments/assets/60a22438-3db9-4f49-82a0-73ce5b98a532)
+
 Uhh I'm kinda super akward at first but that's bc I can't talk to ppl!!
 ![3s56vo](https://github.com/user-attachments/assets/b566134e-1cb8-4dd4-9628-f938ff6c018b)
 
 Fandoms - 🖋️🎀;🔦🪦;🦊🩷;💭🏝️;⭐🦖;🍷🗝️;👑🍪;🌳🪚;🐱🌈;💚❤️💛;🌿🌂;! ₍^. .^₎⟆
 ![kangel_and_ame_chan_stamp_by_scenekel_dfybcxm-fullview](https://github.com/user-attachments/assets/a341656f-b778-42fb-b11f-5088add14e72)
 
+![0142-virusgender](https://github.com/user-attachments/assets/b86f2b59-8b6a-4012-a76a-b26594e2113b)
+
 ୨ৎᴘᴀɴꜱᴇxᴜᴀʟ, ꜰɪᴄᴛᴏʀᴏᴍᴀᴛɪᴄ ᴀɴᴅ ꜰɪᴇʀɪꜱᴇxᴜᴀʟ/ᴄᴇᴘᴛᴜꜱᴇxᴜᴀʟ
 ![0074-pan](https://github.com/user-attachments/assets/26a40d75-cb1b-4013-9039-bbd4ae921081)
+
+![0099-ballcplpinkpink](https://github.com/user-attachments/assets/15d95537-3ace-4745-a419-ed5f3e664340)
 
 I'm kinda 𝓯𝓻𝓮𝓪𝓴𝔂 👅 ( ＾◡＾)っ✂╰⋃╯
 ![yes__i_do_crack_cocaine_by_faketop_dd481mx-fullview](https://github.com/user-attachments/assets/d21f3d82-917e-4139-b85c-3fb7c18fc63e)
