@@ -34,17 +34,19 @@ Fandoms - 🖋️🎀;🔦🪦;🦊🩷;💭🏝️;⭐🦖;🍷🗝️;👑🍪
 
 ![0142-virusgender](https://github.com/user-attachments/assets/b86f2b59-8b6a-4012-a76a-b26594e2113b)
 
-୨ৎᴘᴀɴꜱᴇxᴜᴀʟ, ꜰɪᴄᴛᴏʀᴏᴍᴀᴛɪᴄ ᴀɴᴅ ꜰɪᴇʀɪꜱᴇxᴜᴀʟ/ᴄᴇᴘᴛᴜꜱᴇxᴜᴀʟ
+୨ৎᴘᴀɴꜱᴇxᴜᴀʟ, ꜰɪᴄᴛᴏʀᴏᴍᴀᴛɪᴄ ᴀɴᴅ ꜰɪᴇʀɪꜱᴇxᴜᴀʟ/ᴄᴇᴘᴛᴜꜱᴇxᴜᴀʟ ![LUmVHoj](https://github.com/user-attachments/assets/ae9e60c1-6ba7-47ff-a637-83ad3f2940b6)
+
 ![0074-pan](https://github.com/user-attachments/assets/26a40d75-cb1b-4013-9039-bbd4ae921081)
 
 ![0099-ballcplpinkpink](https://github.com/user-attachments/assets/15d95537-3ace-4745-a419-ed5f3e664340)
 
-I'm kinda 𝓯𝓻𝓮𝓪𝓴𝔂 👅 ( ＾◡＾)っ✂╰⋃╯
+I'm kinda 𝓯𝓻𝓮𝓪𝓴𝔂 👅 ( ＾◡＾)っ✂╰⋃╯ ![HkwAo4t](https://github.com/user-attachments/assets/3460fe7c-63a1-48c6-aa35-722643f8eaad)
+
 ![yes__i_do_crack_cocaine_by_faketop_dd481mx-fullview](https://github.com/user-attachments/assets/d21f3d82-917e-4139-b85c-3fb7c18fc63e)
 
 ![0206-nyancat](https://github.com/user-attachments/assets/f981a81c-70a6-49a2-87c1-4a3dcdd70863)
 
-Layze, Femtanyl, Sodikken, Rebzyxx, FunkyFrogBait, MSI, S3RL, Machine Girl, Sir Mix-A-Lot, Ayesha Erotica, 5mewmet, STOMACH BOOK and etc etc fan {¬ºཀ°}¬
+Layze, Femtanyl, Sodikken, Rebzyxx, FunkyFrogBait, MSI, S3RL, Machine Girl, Sir Mix-A-Lot, Ayesha Erotica, 5mewmet, STOMACH BOOK and etc etc fan ![yBctrny](https://github.com/user-attachments/assets/3491a2e0-91ed-4b47-ae8f-0ec460ef265e) {¬ºཀ°}¬
  ![tetoteteto](https://github.com/user-attachments/assets/24acbcff-4384-4ba0-a8f4-31d143ac581b)
 
 I HATE SCHOOL!!! Like my life is just a cycle.. sighs!!![fa6HuMb](https://github.com/user-attachments/assets/149e4f7d-19ba-4a07-8208-565c3cf21208) ˙ . ꒷ 🍰 . 𖦹˙—
@@ -66,6 +68,7 @@ Flippy, Tissues, Shrimpo, Infected, Courtney, Nooby n Animatic kinner!!!![JaHoLp
 INC0MU x 1x1x1x1 doomed yaoi real!!! I heart this ship,,!!! Mwah Mwah Mwah ![blinkiesCafe-H6](https://github.com/user-attachments/assets/afe97f5b-61c7-4dea-a652-bef7512a2df7)
 
 ![blinkiesCafe-OX](https://github.com/user-attachments/assets/0c09809c-5e76-415c-b304-87a866fa70be)
+![JFJyDvW](https://github.com/user-attachments/assets/0de3a514-1fb7-4b49-8199-c100322be1b8)
 
 Buh bye ૮₍´｡ᵔ ꈊ ᵔ｡`₎ა!!![tumblr_6f633c4914e724a592908347c86a1fce_e3c5ab77_100](https://github.com/user-attachments/assets/6a17a39a-496c-43c6-b0ad-cddf67544760)
 
