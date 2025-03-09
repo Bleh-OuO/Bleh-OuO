@@ -44,14 +44,14 @@ I'm kinda 𝓯𝓻𝓮𝓪𝓴𝔂 👅 ( ＾◡＾)っ✂╰⋃╯
 Layze, Femtanyl, Sodikken, Rebzyxx, FunkyFrogBait, MSI, S3RL, Machine Girl, Sir Mix-A-Lot, Ayesha Erotica, 5mewmet, STOMACH BOOK and etc etc fan {¬ºཀ°}¬
  ![tetoteteto](https://github.com/user-attachments/assets/24acbcff-4384-4ba0-a8f4-31d143ac581b)
 
-I HATE SCHOOL!!! Like my life is just a cycle.. sighs!!˙ . ꒷ 🍰 . 𖦹˙—
+I HATE SCHOOL!!! Like my life is just a cycle.. sighs!!![fa6HuMb](https://github.com/user-attachments/assets/149e4f7d-19ba-4a07-8208-565c3cf21208) ˙ . ꒷ 🍰 . 𖦹˙—
+
 ![tumblr_inline_pbk6zbvnsb1vjkfs0_540](https://github.com/user-attachments/assets/8d4a74ac-cb7f-42da-94ae-ac93dec5452f)
 
 ![0blinkiebelieve](https://github.com/user-attachments/assets/2576e2bb-bef8-4f74-b7af-b8c790105b00)
 
 Me being jealousof every single good artist bc I suck at drawing. Gyulp˗ˏˋ★ ˎˊ˗ 
 ![tumblr_inline_p0x8glfCRf1uzqajc_500](https://github.com/user-attachments/assets/654e1cf8-1646-49a2-bd7c-0d7f7e2632d6)
-![fa6HuMb](https://github.com/user-attachments/assets/149e4f7d-19ba-4a07-8208-565c3cf21208)
 
 Flippy, Tissues, Shrimpo, Infected, Courtney, Nooby n Animatic kinner!!!![JaHoLpm](https://github.com/user-attachments/assets/2dd0ad01-774a-4e8d-955a-c66f109b0249)
 
