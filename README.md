@@ -24,8 +24,9 @@ Layze, Femtanyl, Sodikken, Rebzyxx, FunkyFrogBait, MSI, S3RL, Machine Girl, Sir 
  ![tetoteteto](https://github.com/user-attachments/assets/24acbcff-4384-4ba0-a8f4-31d143ac581b)
 
 I HATE SCHOOL!!! Like my life is just a cycle.. sighs!!˙ . ꒷ 🍰 . 𖦹˙—
+![tumblr_inline_pbk6zbvnsb1vjkfs0_540](https://github.com/user-attachments/assets/8d4a74ac-cb7f-42da-94ae-ac93dec5452f)
 
-Me being jealous of every single good artist bc I suck at drawing. Gyulp˗ˏˋ★ ˎˊ˗ ![tumblr_inline_p0x8glfCRf1uzqajc_500](https://github.com/user-attachments/assets/2010c1eb-438e-447a-85bd-5fdc8abf9a95)
+Me being jealous of every single good artist bc I suck at drawing. Gyulp˗ˏˋ★ ˎˊ˗ ![tumblr_inline![tumblr_inline_pbk6zbvnsb1vjkfs0_540](https://github.com/user-attachments/assets/b3076bc0-30c5-467d-87bd-f761389edf5b)
 
 Tissues, Shrimpo, Infected, Courtney, Nooby n Animatic kinner!!! ![lovemycomputer](https://github.com/user-attachments/assets/735f8125-754c-48cf-8287-478839cdde9a)
 
