@@ -17,6 +17,7 @@ This is a account JUST for ponytown!!!ᯓ★
 ![trucks](https://github.com/user-attachments/assets/ff99474c-396c-44b7-afb0-f4b5878c1a5e)
 
 Uhh I'm kinda super akward at first but that's bc I can't talk to ppl!!
+![3s56vo](https://github.com/user-attachments/assets/b566134e-1cb8-4dd4-9628-f938ff6c018b)
 
 Fandoms - 🖋️🎀;🔦🪦;🦊🩷;💭🏝️;⭐🦖;🍷🗝️;👑🍪;🌳🪚;🐱🌈;💚❤️💛;🌿🌂;! ₍^. .^₎⟆
 ![kangel_and_ame_chan_stamp_by_scenekel_dfybcxm-fullview](https://github.com/user-attachments/assets/a341656f-b778-42fb-b11f-5088add14e72)
