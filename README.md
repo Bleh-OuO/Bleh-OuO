@@ -9,17 +9,21 @@
 
 ᴹʸ ˢᵖⁱᵗᵉ, ⁱˢ ᵃˡˡ ᵗʰᵃᵗ ᴵ ʰᵃᵛᵉ ˡᵉᶠᵗ!"- Mecore.
 
+
+![0190-hittingfloor](https://github.com/user-attachments/assets/802f7560-53b9-4fcb-a32b-47978d92e7ea)
+
+
 This is a account JUST for ponytown!!!ᯓ★
 ![trucks](https://github.com/user-attachments/assets/ff99474c-396c-44b7-afb0-f4b5878c1a5e)
 
 Uhh I'm kinda super akward at first but that's bc I can't talk to ppl!!
-![dx8bf5-70cce671-360d-4071-b692-11c7c84f9b11](https://github.com/user-attachments/assets/82c47088-ce4d-4802-ad1d-009c4844cdfd)
+![0220-pills](https://github.com/user-attachments/assets/9f12f6b5-8b09-45ae-a82e-5f8a654745e9)
 
 Fandoms - 🖋️🎀;🔦🪦;🦊🩷;💭🏝️;⭐🦖;🍷🗝️;👑🍪;🌳🪚;🐱🌈;💚❤️💛;🌿🌂;! ₍^. .^₎⟆
 ![kangel_and_ame_chan_stamp_by_scenekel_dfybcxm-fullview](https://github.com/user-attachments/assets/a341656f-b778-42fb-b11f-5088add14e72)
 
 ୨ৎᴘᴀɴꜱᴇxᴜᴀʟ, ꜰɪᴄᴛᴏʀᴏᴍᴀᴛɪᴄ ᴀɴᴅ ꜰɪᴇʀɪꜱᴇxᴜᴀʟ/ᴄᴇᴘᴛᴜꜱᴇxᴜᴀʟ
-![tumblr_inline_pgraffnuNe1v11djx_1280](https://github.com/user-attachments/assets/430f1807-4db3-4399-acfa-9a793898a4f9)
+![0074-pan](https://github.com/user-attachments/assets/26a40d75-cb1b-4013-9039-bbd4ae921081)
 
 I'm kinda 𝓯𝓻𝓮𝓪𝓴𝔂 👅 ( ＾◡＾)っ✂╰⋃╯
 ![yes__i_do_crack_cocaine_by_faketop_dd481mx-fullview](https://github.com/user-attachments/assets/d21f3d82-917e-4139-b85c-3fb7c18fc63e)
