@@ -1,7 +1,8 @@
 ## Yo!!!ִ ࣪𖤐 PLS INT, I NEED FRIENDS!! sigh.
 ![20-DDDEFD-3-B4-C-48-F3-B755-2-A5-DE23-E4734](https://github.com/user-attachments/assets/b1097022-919d-48f4-96e8-1a24b8588e4f)
 
-Call me Aurora !! ^_^
+Call me Aurora !! ![oi0I2IP](https://github.com/user-attachments/assets/10abd328-b007-4631-990c-c64267dbd4cb)
+ ^_^
 
 ![len2](https://github.com/user-attachments/assets/63ce6ce7-544b-4e06-8dc7-33427e29ba5a)
 
@@ -18,15 +19,17 @@ Call me Aurora !! ^_^
 ![0190-hittingfloor](https://github.com/user-attachments/assets/802f7560-53b9-4fcb-a32b-47978d92e7ea)
 
 
-This is a account JUST for ponytown!!!ᯓ★
+This is a account JUST for ponytown!!! ![5F4692x](https://github.com/user-attachments/assets/633a8993-47f0-4ccc-8778-d4adf51c9f46) ᯓ★
 ![trucks](https://github.com/user-attachments/assets/ff99474c-396c-44b7-afb0-f4b5878c1a5e)
 
 ![0266-lovefool](https://github.com/user-attachments/assets/60a22438-3db9-4f49-82a0-73ce5b98a532)
 
-Uhh I'm kinda super akward at first but that's bc I can't talk to ppl!!
+Uhh I'm kinda super akward at first but that's bc I can't talk to ppl ![SUCCesn](https://github.com/user-attachments/assets/af2d8c17-e65d-442f-8488-3e8f25b7556f) !!
+
 ![3s56vo](https://github.com/user-attachments/assets/b566134e-1cb8-4dd4-9628-f938ff6c018b)
 
-Fandoms - 🖋️🎀;🔦🪦;🦊🩷;💭🏝️;⭐🦖;🍷🗝️;👑🍪;🌳🪚;🐱🌈;💚❤️💛;🌿🌂;! ₍^. .^₎⟆
+Fandoms - 🖋️🎀;🔦🪦;🦊🩷;💭🏝️;⭐🦖;🍷🗝️;👑🍪;🌳🪚;🐱🌈;💚❤️💛;🌿🌂;! ₍^. .^₎⟆ 
+![sWUJGaP](https://github.com/user-attachments/assets/f5ed884e-eb83-42c4-b30c-cc03d031b923)
 ![kangel_and_ame_chan_stamp_by_scenekel_dfybcxm-fullview](https://github.com/user-attachments/assets/a341656f-b778-42fb-b11f-5088add14e72)
 
 ![0142-virusgender](https://github.com/user-attachments/assets/b86f2b59-8b6a-4012-a76a-b26594e2113b)
