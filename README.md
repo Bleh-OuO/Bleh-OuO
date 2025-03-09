@@ -74,7 +74,7 @@ Buh bye ૮₍´｡ᵔ ꈊ ᵔ｡`₎ა!!![tumblr_6f633c4914e724a592908347c86a1
 
 ![blinkiesCafe-4E](https://github.com/user-attachments/assets/d4f45c70-41cf-4d2f-a796-23255ce50970)
 
-silly sites I used for buttonz and stickers: https://rentry.co/PUSHURT3MPER https://rentry.co/kamikazegirIs https://blinkies.cafe/ https://sntry.cc/lecola
+silly sites I used for buttonz and stickers: https://rentry.co/PUSHURT3MPER https://rentry.co/kamikazegirIs https://blinkies.cafe/ https://sntry.cc/lecola https://sadthemes.tumblr.com/smolpxl
 
 ![7qz7tj](https://github.com/user-attachments/assets/81f1173e-9a93-4604-bc5c-1a0e7a900d9b)
 <!--
