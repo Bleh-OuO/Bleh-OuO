@@ -1,6 +1,8 @@
 ## Yo!!!ִ ࣪𖤐 PLS INT, I NEED FRIENDS!! sigh.
 ![20-DDDEFD-3-B4-C-48-F3-B755-2-A5-DE23-E4734](https://github.com/user-attachments/assets/b1097022-919d-48f4-96e8-1a24b8588e4f)
 
+!https://open.spotify.com/intl-pt/track/0HZVEAGKTRnLri74Dozk7N?si=81be1b749b6641c2
+
 ![len2](https://github.com/user-attachments/assets/63ce6ce7-544b-4e06-8dc7-33427e29ba5a)
 
 "ᴵ ᵍᵒᵗ ⁱⁿ ᵒᵛᵉʳ ᵐʸ ʰᵉᵃᵈ
