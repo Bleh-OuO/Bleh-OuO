@@ -64,9 +64,6 @@ Flippy, Tissues, Shrimpo, Infected, Courtney, Nooby n Animatic kinner!!!![JaHoLp
 
 ![0220-pills](https://github.com/user-attachments/assets/9f12f6b5-8b09-45ae-a82e-5f8a654745e9)
 
-
-INC0MU x 1x1x1x1 doomed yaoi real!!! I heart this ship,,!!! Mwah Mwah Mwah ![blinkiesCafe-H6](https://github.com/user-attachments/assets/afe97f5b-61c7-4dea-a652-bef7512a2df7)
-
 ![blinkiesCafe-OX](https://github.com/user-attachments/assets/0c09809c-5e76-415c-b304-87a866fa70be)
 ![JFJyDvW](https://github.com/user-attachments/assets/0de3a514-1fb7-4b49-8199-c100322be1b8)
 
