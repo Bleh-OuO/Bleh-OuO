@@ -34,7 +34,7 @@ Fandoms - 🖋️🎀;🔦🪦;🦊🩷;💭🏝️;⭐🦖;🍷🗝️;👑🍪
 
 ![0142-virusgender](https://github.com/user-attachments/assets/b86f2b59-8b6a-4012-a76a-b26594e2113b)
 
-୨ৎᴘᴀɴꜱᴇxᴜᴀʟ, ꜰɪᴄᴛᴏʀᴏᴍᴀᴛɪᴄ ᴀɴᴅ ꜰɪᴇʀɪꜱᴇxᴜᴀʟ/ᴄᴇᴘᴛᴜꜱᴇxᴜᴀʟ ![LUmVHoj](https://github.com/user-attachments/assets/ae9e60c1-6ba7-47ff-a637-83ad3f2940b6)
+୨ৎᴘᴀɴꜱᴇxᴜᴀʟ, ꜰɪᴄᴛᴏʀᴏᴍᴀᴛɪᴄ ᴀɴᴅ ꜰɪᴇʀɪꜱᴇxᴜᴀʟ/ᴄᴇᴘᴛᴜꜱᴇxᴜᴀʟ ![LUmVHoj](https://github.com/user-attachments/assets/ae9e60c1-6ba7-47ff-a637-83ad3f2940b6) (actually it's fictoromantic, pansexual, lithsexual, fierisexual, maybe aroace... but those are the ones i mostly say to ppl)
 
 ![0074-pan](https://github.com/user-attachments/assets/26a40d75-cb1b-4013-9039-bbd4ae921081)
 
